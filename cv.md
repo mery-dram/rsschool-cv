@@ -16,3 +16,15 @@ E-mail: mery_crew@tut.by
 Github: [mery-dram](https://github.com/mery-dram)
 
 Discord: mery-dram
+
+
+## ACADEMIC BACKGROUND
+
++  Lida State Musical College 2005-2009
+   + Specialty: Musicology
+
++ Belarusian State University of Culture and Arts 2009-2014
+   + Faculty of Musical Arts (Wind Folk Instruments Department)
+   
++ Telemark University College (Norway) 2013
+   + Faculty of Arts, Folk Culture and Teacher Education
