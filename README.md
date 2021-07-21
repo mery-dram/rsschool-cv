@@ -1,1 +1,1 @@
-# rsschool-cv
+https://mery-dram.github.io/rsschool-cv/cv
